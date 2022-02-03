@@ -1,4 +1,4 @@
-# CodingChallenge1
+# Coding Challenge 1 of many to come:
 
 ## Welcome to my Github!
 
