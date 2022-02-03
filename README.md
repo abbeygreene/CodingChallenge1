@@ -10,4 +10,4 @@ As a the Offshore Wind and Blue Economy Fellow at the Coastal Resources Center, 
 
 I'm also studying at the University of Rhode Island to obtain my Master's Degree in Environmental Science and Management with a focus on Environmental Policy. On top of my degree, I am working to obtain a certification in GIS and Remote Sensing and another certification in Science Writing and Rhetoric. I plan to graduate in May of 2022.
 
-*Feel free to connect with me via LinkedIn [LinkedIn Profile](https://www.linkedin.com/in/abbey-greene-148479111/)*
+*Feel free to connect with me via [LinkedIn](https://www.linkedin.com/in/abbey-greene-148479111/)*
